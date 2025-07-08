@@ -10,4 +10,4 @@
 
 本站收录来自美日韩等多地区的精品视频内容，涵盖福利、高清、一区二区三区等热门分类。支持多终端高清播放，无需注册即可畅享，打造快速纯净的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/linh20250708/linh16 ）</span>
